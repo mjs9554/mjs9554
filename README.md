@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Major Singh.
-- 🌱 I’m currently a sophomore at Panjab University.
+- 🌱 I’m currently a junior at Panjab University.
 - 📫You can reach me at mjs9554@icloud.com
 
 <!---
